@@ -1,5 +1,5 @@
 ## 📄 Resume  
-🔗 **[Download My Resume](https://raw.githubusercontent.com/Sanidhya46/Certificates/main/Sanidhya_Shukla_Resume.pdf)**
+🔗 **[Download My Resume](https://raw.githubusercontent.com/Sanidhya46/Certificates/main/Sanidhya_Shukla_Resume(2).pdf)**
 
 ---
 
